@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JuaraSkor.com
+- 👋 Hi, I’m @ www.juaraskor.com
 - 👀 I’m interested in Prediksi Bola
 - 🌱 I’m currently learning Prediksi Skor
 - 💞️ I’m looking to collaborate on Juara Skor
